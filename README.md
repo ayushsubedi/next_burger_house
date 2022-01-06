@@ -1,2 +1,2 @@
 # 🍔 🐔 
-## Where should someone open a new burger house and crunchy fried chicken in Kathmandu?
+## Where should someone open a new *Burger House and Crunchy Fried Chicken* in Kathmandu?
